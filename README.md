@@ -1,1 +1,2 @@
 - 👋 Hi, I’m @kauaCodess i like computers and others stuffs related
+- I'm going share about my experience and future projects
