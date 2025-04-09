@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @kauaCodess i like computers and others stuffs related
